@@ -1,4 +1,4 @@
-# Namaste! 🙏 Welcome to [Your Name]'s GitHub Profile! 🚀
+# Namaste! 🙏 Welcome to SAI BHARATH's GitHub Profile! 🚀
 
 Hey there! This is SAI BHARATH, a 16-year-old student from 🇮🇳 India, passionate about exploring the intersection of technology and creativity. As a versatile individual, I wear many hats - from being a naturalist to a tech enthusiast, full-stack developer, freelancer, NFT aficionado, UX/UI designer, cybersecurity enthusiast, and athlete.
 
